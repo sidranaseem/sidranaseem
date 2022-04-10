@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @sidranaseem
 - 👀 I’m interested in Web designing
-- 🌱 I’m currently learning BS CS
+- 🌱 I’m currently Studying BS CS
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me. Siddra.naseem@gmail.com
 
